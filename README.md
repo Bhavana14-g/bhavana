@@ -1,2 +1,0 @@
-# bhavana
-njsalin
